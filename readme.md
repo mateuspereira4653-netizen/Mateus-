@@ -1,1 +1,1 @@
-O projeto tem cocmo objetivo auxiliar na vida finamceira pessoal das pessoas
+O projeto tem como objetivo auxiliar na vida financeira pessoal das pessoas
